@@ -1,4 +1,4 @@
-### Hi there 👋
+Looking to serve my community with a variety of fresh handmade pastas, meatballs and sauces.
 
 <!--
 **BucketOfMeatBalls/BucketOfMeatBalls** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
